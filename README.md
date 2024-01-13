@@ -9,3 +9,5 @@ Basic Functions:
 - About 
 
 https://saracwynar.com/ 
+https://jackbardwell.com/ 
+https://cyberfeminismindex.com/ 
